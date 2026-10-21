@@ -221,4 +221,4 @@ Mafia 3 is available as a full free version with **all features and updates incl
 Download Mafia 3 now and immerse yourself in a world of crime and vengeance!
 
 ---
-**Last updated:** 2026-10-21 17:46:05 UTC
+**Last updated:** 2026-10-21 21:00:29 UTC
